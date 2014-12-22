@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Deaths aduantage little regarded, and The soules solace against sorrow Preached in two funerall serm
+C. BRETTERG
 **Types of content**
 
   * There are 70 **verse** lines!
